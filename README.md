@@ -1,1 +1,1 @@
-# SrijaPathrala.github.io.
+# SrijaPathrala.github.io
